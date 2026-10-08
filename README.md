@@ -1,4 +1,4 @@
-## Yone is God. You must minister him 👋
+## Redeye X Yone | 김성현
 
 <!--
 **RedeyeXYone/RedeyeXYone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
